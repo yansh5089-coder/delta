@@ -1,2 +1,2 @@
 # delta
-education is the best reaction 
+education is the best solution of reaction 
